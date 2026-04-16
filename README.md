@@ -19,7 +19,7 @@ Pain<br>
 April 16, 2026
 <br>
 
-Through pain, experience becomes real. What is uncertain becomes defined. What is passing becomes permanent. What is neutral becomes meaningful in a heavy, unavoidable way. Pain does not just accompany experience—it constructs the sense that there is a real world being lived in.
+Through pain, experience becomes real. What is uncertain becomes defined. What is passing becomes permanent. What is neutral becomes meaningful in a heavy, unavoidable way. Pain does not just accompany experience. It constructs the sense that there is a real world being lived in.
 
 Without pain, there is nothing holding experience into place. What was taken as a stable reality begins to lose its structure, because that structure was never separate from the suffering that formed it. The solidity of life is not inherent; it is maintained by the pressure that gives it weight.
 
