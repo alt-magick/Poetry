@@ -35,7 +35,7 @@ April 20, 2026
 
 The word God is not defined, but invoked. It is an instrument rather than an explanation, guiding awareness towards what cannot be understood.
 
-And yet, the power of the word lies precisely in this. One does not grasp the divine, but participates in the act the word sets in motion.
+And yet, the power of the word lies precisely in this. One does not grasp the divine, but participates in the act that the word sets in motion.
 
 It resists all names that would contain it. Not arriving as knowledge, but as belief. It stays outside the reach of both certainty and rejection.
 
