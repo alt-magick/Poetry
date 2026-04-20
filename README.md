@@ -24,3 +24,19 @@ Through pain, experience becomes real. What is uncertain becomes defined. What i
 Without pain, there is nothing holding experience into place. What was taken as a stable reality begins to lose its structure, because that structure was never separate from the suffering that formed it. The solidity of life is not inherent; it is maintained by the pressure that gives it weight.
 
 From this perspective, pain is not evidence of reality, but the mechanism that makes reality feel real. When it is absent, what remains is not a hidden deeper world, but the fading of the illusion that anything was ever fixed to begin with.
+
+<br>
+
+A Word<br>
+April 20, 2026
+<br>
+
+The word God is not defined, but invoked. It is an instrument rather than an explanation. Guiding awareness towards what cannot be understood.
+
+And yet, the power of the word lies precisely in this. One does not grasp the divine, but participates in the act the word sets in motion.
+
+It resists all names that would contain it. Not arriving as knowledge, or belief. It stays outside the reach of both certainty and rejection.
+
+God is not a destination, but a horizon. A place where language begins, and what cannot be said makes itself felt.
+
+
