@@ -5,7 +5,9 @@ Senses<br>
 April 8, 2026
 <br>
 
-We can only examine our senses by using them; there is no vantage point outside perception from which they may be observed. They reveal themselves only through the act of sensing, inseparable from the experiences that make them known. In this way, the senses are both instrument and object, means and mystery, disclosing their truth only through engagement. Each sight, sound, touch, taste, and smell carries its own world, shaping awareness like ripples spreading across still water.<br>
+We can only examine our senses by using them; there is no vantage point outside perception from which they may be observed. They reveal themselves only through the act of sensing, inseparable from the experiences that make them known.
+
+In this way, the senses are both instrument and object, means and mystery, disclosing their truth only through engagement. Each sight, sound, touch, taste, and smell carries its own world, shaping awareness like ripples spreading across still water.<br>
 
 To observe the senses is not to step aside, but to dwell within them, attentive to their rhythms and subtle whispers. The eye traces the dance of light and shadow; the ear listens to the quiet music of the world; In this engagement, perception becomes both mirror and map.<br>
 
