@@ -55,8 +55,4 @@ What we call life is not a completed order unfolding in time, but a sequence of 
 
 There is no final structure of the self beneath this movement, and no fixed interior from which decisions originate untouched by what they produce. There is only formation without endpoint, where each act of choosing is not added to a finished identity, but becomes part of an identity still arriving through its unfolding.
 
-Free will is not something exercised by the self. It is the self as it occurs. Without separation between what it decides and what it becomes outside the act in which it is lived.
-
-
-
 
