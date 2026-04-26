@@ -1,9 +1,9 @@
 # Poetry
 Guerrilla Poetry
 
-https://www.guerrillapoetry.com
-
 Poems running on a GitHub database in this repo.<br> Live at:<br>
+
+https://www.guerrillapoetry.com
 
 ![Logo](guerrillapoetry.png)
 
