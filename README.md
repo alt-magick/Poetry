@@ -3,6 +3,8 @@ Guerrilla Poetry
 
 https://www.guerrillapoetry.com
 
+![Alt text](guerrillapoetry.png)
+
 Senses<br> 
 April 8, 2026
 <br>
