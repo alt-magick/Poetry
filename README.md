@@ -4,8 +4,9 @@ Guerrilla Poetry
 Poems running on a GitHub database in this repo.<br> Live at:<br>
 
 https://www.guerrillapoetry.com
+<br>
 
-![Logo](guerrillapoetry.png)
+<img src="guerrillapoetry.png" alt="Logo" width="200"/>
 
 
 
