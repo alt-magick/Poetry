@@ -26,5 +26,9 @@
   {
     "text": "TESTING",
     "time": 12345
+  },
+  {
+    "text": "DIRECT TEST",
+    "time": 123
   }
 ]
