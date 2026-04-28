@@ -34,5 +34,9 @@
   {
     "text": "TEST2",
     "time": 1234
+  },
+  {
+    "text": "CHECK",
+    "time": 123456
   }
 ]
