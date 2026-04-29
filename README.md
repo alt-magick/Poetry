@@ -1,7 +1,7 @@
 # Poetry
 Guerrilla Poetry
 
-Poems running on a GitHub database in this repo.<br> 
+Poems running on a SQL database <br> 
 
 Live at:<br>
 
